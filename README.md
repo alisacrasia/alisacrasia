@@ -18,4 +18,4 @@
  								 ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST & Hoyo spots ˳     𓏲  ˑ 
 								 				 ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
-<img width="2048" height="254" alt="tumblr_740e8b5d2d892a48de3c2cfff2831977_65359acc_2048" src="https://github.com/user-attachments/assets/3a0f627c-92c2-4d70-8597-3e28b54f3b91" />
+![tumblr_b010aec484a9531edfbb72d447b149a0_bcf36e16_2048](https://github.com/user-attachments/assets/383b2562-21e2-4f4c-ad84-cb56146d9500)
