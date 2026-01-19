@@ -25,5 +25,4 @@
 
 <img width="1000" height="50" alt="tumblr_369baddf595f0193b802e50f2ce76ad3_5e77e629_1280" src="https://github.com/user-attachments/assets/48fb8fab-645b-471d-a268-92cebb82ef23" />
 
-																			⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!  ⭒⏝︶ ⊹
-![Profile Views](https://komarev.com/ghpvc/?username=alisacrasia)
+![Profile Views](https://komarev.com/ghpvc/?username=alisacrasia)														⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!  ⭒⏝︶ ⊹ 
