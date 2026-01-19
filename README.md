@@ -23,6 +23,8 @@
 
 ![tumblr_b010aec484a9531edfbb72d447b149a0_bcf36e16_2048](https://github.com/user-attachments/assets/383b2562-21e2-4f4c-ad84-cb56146d9500)
 
+																			⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!  ⭒⏝︶ ⊹ 
+
 <img width="1000" height="50" alt="tumblr_369baddf595f0193b802e50f2ce76ad3_5e77e629_1280" src="https://github.com/user-attachments/assets/48fb8fab-645b-471d-a268-92cebb82ef23" />
 
-																						⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐!  ⭒⏝︶ ⊹ 
+![Views Counter](https://views-counter.vercel.app/badge?pageId=alisacrasia&leftColor=000000&rightColor=8d9eb1&type=total&label=Viewers&style=upper)
