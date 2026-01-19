@@ -17,3 +17,5 @@
      						𓏲୨    𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘧𝘬 𝘣𝘶𝘵 𝘸𝘦 𝘤𝘩𝘦𝘤𝘬 𝘧𝘳𝘦𝘲𝘶𝘦𝘯𝘵𝘭𝘺 𝘴𝘰 𝘸𝘦 𝘮𝘪𝘨𝘩𝘵 𝘤𝘢𝘵𝘤𝘩 𝘺𝘰𝘶  ּ   ໑  ׅ   ⋆ 
  								 ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST & Hoyo spots ˳     𓏲  ˑ 
 								 				 ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
+
+<img width="2048" height="254" alt="tumblr_740e8b5d2d892a48de3c2cfff2831977_65359acc_2048" src="https://github.com/user-attachments/assets/3a0f627c-92c2-4d70-8597-3e28b54f3b91" />
