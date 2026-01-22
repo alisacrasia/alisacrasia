@@ -17,7 +17,7 @@
 
 							𓏲୨    𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘧𝘬 𝘣𝘶𝘵 𝘸𝘦 𝘤𝘩𝘦𝘤𝘬 𝘧𝘳𝘦𝘲𝘶𝘦𝘯𝘵𝘭𝘺 𝘴𝘰 𝘸𝘦 𝘮𝘪𝘨𝘩𝘵 𝘤𝘢𝘵𝘤𝘩 𝘺𝘰𝘶  ּ   ໑  ׅ   ⋆ 
  							
-								 ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST & Hoyo spots ˳     𓏲  ˑ 
+							  ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
 												 ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
