@@ -38,6 +38,6 @@
 
 ![tumblr_b010aec484a9531edfbb72d447b149a0_bcf36e16_2048](https://github.com/user-attachments/assets/383b2562-21e2-4f4c-ad84-cb56146d9500)
 
-													 				⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐  ⭒⏝︶ ⊹ 
+													 				         ⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐  ⭒⏝︶ ⊹ 
 
 ![Views Counter](https://views-counter.vercel.app/badge?pageId=alisacrasia&leftColor=333e51&rightColor=94aec7&type=total&label=visitors&style=lower)
