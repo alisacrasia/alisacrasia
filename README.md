@@ -40,6 +40,4 @@
 
 													 				⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐  ⭒⏝︶ ⊹ 
 
-<img width="1000" height="50" alt="tumblr_369baddf595f0193b802e50f2ce76ad3_5e77e629_1280" src="https://github.com/user-attachments/assets/48fb8fab-645b-471d-a268-92cebb82ef23" />
-
 ![Views Counter](https://views-counter.vercel.app/badge?pageId=alisacrasia&leftColor=333e51&rightColor=94aec7&type=total&label=visitors&style=lower)
