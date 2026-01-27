@@ -9,7 +9,7 @@
 
 														︶ ‿̩͙𝄞　"wearing that confident face  ་།  　་༘࿐
 																		
-													       ꒷	゛  my pleasure, my queen"   𓏲ּ𝄢　₊   
+													       ꒷	゛  my pleasure, my queen,"   𓏲ּ𝄢　₊   
 
 <img width="1000" height="50" alt="tumblr_0c76fccf0d55f2016e7bb56df23c84fa_a66fa2d2_1280" src="https://github.com/user-attachments/assets/374de8ab-7aa0-4eea-8ea9-3da3a492ac92" />
 
