@@ -15,7 +15,7 @@
 
 			             					   ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐂͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
-							𓏲୨    𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘧𝘬 𝘣𝘶𝘵 𝘸𝘦 𝘤𝘩𝘦𝘤𝘬 𝘧𝘳𝘦𝘲𝘶𝘦𝘯𝘵𝘭𝘺 𝘴𝘰 𝘸𝘦 𝘮𝘪𝘨𝘩𝘵 𝘤𝘢𝘵𝘤𝘩 𝘺𝘰𝘶  ּ   ໑  ׅ   ⋆ 
+		   𓏲୨    We block freely without ANY type of explanation if you cross our boundaries or act weird  ּ   ໑  ׅ   ⋆ 
  							
 							  ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
