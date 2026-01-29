@@ -13,13 +13,13 @@
 
 <img width="1000" height="50" alt="tumblr_0c76fccf0d55f2016e7bb56df23c84fa_a66fa2d2_1280" src="https://github.com/user-attachments/assets/374de8ab-7aa0-4eea-8ea9-3da3a492ac92" />
 
-			             					   ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐂͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
+			             			    ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐂͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
 		 𓏲୨    We block freely without ANY type of explanation if you act weird or cross our boundaries  ּ   ໑  ׅ   ⋆ 
  							
-							  ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
+							 ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
-												 ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
+										   ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
 <img width="1000" height="50" alt="tumblr_9df8c0a8542590c7dcb3b9a530a466f1_d168c445_1280" src="https://github.com/user-attachments/assets/89e23351-7d0c-4611-a050-4a3fa09b5259" />
 
