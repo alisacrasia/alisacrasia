@@ -13,7 +13,7 @@
 
 <img width="1000" height="50" alt="tumblr_0c76fccf0d55f2016e7bb56df23c84fa_a66fa2d2_1280" src="https://github.com/user-attachments/assets/374de8ab-7aa0-4eea-8ea9-3da3a492ac92" />
 
-			             			      ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐂͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
+			             			      ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
 		 𓏲୨    We block freely without ANY type of explanation if you act weird or cross our boundaries  ּ   ໑  ׅ   ⋆ 
  							
