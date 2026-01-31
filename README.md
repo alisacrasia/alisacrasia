@@ -48,4 +48,4 @@
 
 													 				    ⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐  ⭒⏝︶ ⊹ 
 
-![Views Counter](https://views-counter.vercel.app/badge?pageId=alisacrasia&leftColor=#84b15e&rightColor=#de80b0&type=total&label=visitors&style=lower)
+![Views Counter](https://views-counter.vercel.app/badge?pageId=alisacrasia&leftColor=84b15e&rightColor=de80b0&type=total&label=visitors&style=lower)
