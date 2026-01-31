@@ -11,7 +11,8 @@
 																		
 													       ꒷	゛  my pleasure, my queen,"   𓏲ּ𝄢　₊   
 
-<img width="2048" height="123" alt="tumblr_83c09b844457b9843182c402ac7aa70a_ffc58410_2048" src="https://github.com/user-attachments/assets/cccad525-a9a0-4819-b28c-a5d3b68de65f" />
+<img width="2048" height="18" alt="tumblr_308ad28deeb8c91c3a4a673a5dbf557e_277c390b_2048" src="https://github.com/user-attachments/assets/b7f1585d-6041-460f-9fde-fc62697ab32a" />
+
 
 
 
