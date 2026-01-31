@@ -4,7 +4,8 @@
  
                                  ໒  ꒰ྀི´ ཀ ` ꒱ა⠀𝗌𝗈𝗎𝗋𝖼𝖾: 𝖳𝗐𝗂𝗌𝗍𝖾𝖽 𝖶𝗈𝗇𝖽𝖾𝗋𝗅𝖺𝗇𝖽  !  ࿐  ✙
 
-<img width="2048" height="273" alt="tumblr_b71e4d8fa9f30dfe147ed359e7648500_90162dfa_2048" src="https://github.com/user-attachments/assets/01d1799c-0ebe-4d6b-9884-6bccfd220fb6" />
+![tumblr_b80287e9c569acc64d10ad925216f047_101b79ef_2048](https://github.com/user-attachments/assets/e112d03f-afbc-43ec-a6b7-73628f7da3e7)
+
 
 
 														︶ ‿̩͙𝄞　"wearing that confident face  ་།  　་༘࿐
