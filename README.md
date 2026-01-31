@@ -21,7 +21,8 @@
 								 
 										   ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
-<img width="1000" height="50" alt="tumblr_9df8c0a8542590c7dcb3b9a530a466f1_d168c445_1280" src="https://github.com/user-attachments/assets/89e23351-7d0c-4611-a050-4a3fa09b5259" />
+<img width="2048" height="136" alt="tumblr_71b5a934354da7dbc2a7bfc746b9867e_44d65803_2048" src="https://github.com/user-attachments/assets/e493c4a1-7d5b-4641-93a0-1a556a5e44de" />
+
 
 
 															  	⋆ ᥫ᭡ ˚  ࿔ 𝚖𝚘𝚜𝚝 𝚘𝚏 𝚘𝚞𝚛 𝚙𝚘𝚗𝚒𝚎𝚜: 
