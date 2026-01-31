@@ -11,7 +11,9 @@
 																		
 													       ꒷	゛  my pleasure, my queen,"   𓏲ּ𝄢　₊   
 
-<img width="1000" height="50" alt="tumblr_0c76fccf0d55f2016e7bb56df23c84fa_a66fa2d2_1280" src="https://github.com/user-attachments/assets/374de8ab-7aa0-4eea-8ea9-3da3a492ac92" />
+<img width="2048" height="123" alt="tumblr_83c09b844457b9843182c402ac7aa70a_ffc58410_2048" src="https://github.com/user-attachments/assets/cccad525-a9a0-4819-b28c-a5d3b68de65f" />
+
+
 
 			             			      ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
