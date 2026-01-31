@@ -10,7 +10,7 @@
 
 														︶ ‿̩͙𝄞　"you got me feelin' hella good  ་།  　་༘࿐
 																		
-													 ꒷	゛  so let's just keep on dancing,"   𓏲ּ𝄢　₊   
+													 ꒷	゛  so let's just keep on dancing!"   𓏲ּ𝄢　₊   
 
 <img width="2048" height="136" alt="tumblr_c9647e3e01911e17a088af400131c7ff_df977737_2048" src="https://github.com/user-attachments/assets/530563eb-39d2-438d-b3d2-e1127b49bb4b" />
 
