@@ -43,9 +43,7 @@
 
 											 	(KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚    ⋆
 
-<img width="2048" height="55" alt="tumblr_9990433e4cb319950f6583898c429b92_4966361e_2048" src="https://github.com/user-attachments/assets/a1a03833-e60b-4dd0-93e0-009015a864dd" />
-
-
+<img width="2048" height="136" alt="tumblr_bc796f41f3a8dcb9874b728242b82722_c7340d50_2048" src="https://github.com/user-attachments/assets/4f7f49c3-99f2-4958-93c3-cdc77460a210" />
 
 
 													 				    ⊹ ︶⏝⭒  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐  ⭒⏝︶ ⊹ 
