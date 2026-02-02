@@ -19,29 +19,29 @@
 
 
 
-			             			      ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
+			             			       ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
-		 𓏲୨    We block freely without ANY type of explanation if you act weird or cross our boundaries  ּ   ໑  ׅ   ⋆ 
+		  𓏲୨    We block freely without ANY type of explanation if you act weird or cross our boundaries  ּ   ໑  ׅ   ⋆ 
  							
-							 ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
+							  ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
-										   ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
+										    ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
 <img width="2048" height="136" alt="tumblr_71b5a934354da7dbc2a7bfc746b9867e_44d65803_2048" src="https://github.com/user-attachments/assets/e493c4a1-7d5b-4641-93a0-1a556a5e44de" />
 
 
 
-											 	 ⋆ ᥫ᭡ ˚  ࿔ 𝚖𝚘𝚜𝚝 𝚘𝚏 𝚘𝚞𝚛 𝚙𝚘𝚗𝚒𝚎𝚜: 
+											 	     ⋆ ᥫ᭡ ˚  ࿔ 𝚖𝚘𝚜𝚝 𝚘𝚏 𝚘𝚞𝚛 𝚙𝚘𝚗𝚒𝚎𝚜: 
 
-							   (BSD) 𝙍𝙖𝙣𝙥𝙤 𝙀𝙙𝙤𝙜𝙖𝙬𝙖/Skyler, (MHA) Cowboy 𝘿𝙖𝙗𝙞, (GI) 𝙎𝙘𝙖𝙧𝙖𝙢𝙤𝙪𝙘𝙝𝙚/Kuni, 
+							      (BSD) 𝙍𝙖𝙣𝙥𝙤 𝙀𝙙𝙤𝙜𝙖𝙬𝙖/Skyler, (MHA) Cowboy 𝘿𝙖𝙗𝙞, (GI) 𝙎𝙘𝙖𝙧𝙖𝙢𝙤𝙪𝙘𝙝𝙚/Kuni, 
 
-								(HSR) 𝘿𝙖𝙣𝙛𝙚𝙣𝙜/Fēi Shì, (GI) 𝙆𝙞𝙣𝙞𝙘𝙝/Kylo, (TWST) 𝙇𝙚𝙤𝙣𝙖, (DS) 𝙂𝙞𝙮𝙪𝙪, 
+								   (HSR) 𝘿𝙖𝙣𝙛𝙚𝙣𝙜/Fēi Shì, (GI) 𝙆𝙞𝙣𝙞𝙘𝙝/Kylo, (TWST) 𝙇𝙚𝙤𝙣𝙖, (DS) 𝙂𝙞𝙮𝙪𝙪, 
 
-					 (GI) Aglow 𝘼𝙚𝙩𝙝𝙚𝙧/Solar, (TWST) Butler 𝙍𝙞𝙙𝙙𝙡𝙚, (TWST) 𝙍𝙤𝙡𝙡𝙤 (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞, (MHA) 𝙆𝙖𝙩𝙨𝙪𝙠𝙞, 
+					   (GI) Aglow 𝘼𝙚𝙩𝙝𝙚𝙧/Solar, (TWST) Butler 𝙍𝙞𝙙𝙙𝙡𝙚, (TWST) 𝙍𝙤𝙡𝙡𝙤 (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞, (MHA) 𝙆𝙖𝙩𝙨𝙪𝙠𝙞, 
 
-						   (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚/Saph, (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso, (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, 
+						     (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚/Saph, (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso, (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, 
 
-								     (KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚    ⋆
+								       (KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚    ⋆
 
 <img width="2048" height="136" alt="tumblr_bc796f41f3a8dcb9874b728242b82722_c7340d50_2048" src="https://github.com/user-attachments/assets/4f7f49c3-99f2-4958-93c3-cdc77460a210" />
 
