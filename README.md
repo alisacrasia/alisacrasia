@@ -19,13 +19,13 @@
 
 
 
-			             			       ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
+			             			         ۫   𐑺   𝗴͟𝗲͟𝗻͟𝗲͟𝗿͟𝗮͟𝗹͟ 𝐃͟𝐍͟𝐈͟ 𝗰͟𝗿͟𝗶͟𝘁͟𝗲͟𝗿͟𝗶͟𝗮͟ ͟ ˑ   ⌕ ࣭   ᘐ 
 
 		  𓏲୨    We block freely so if you act weird unprovoked or cross boundaries you're hidden sorry! ^^ ּ   ໑  ׅ   ⋆ 
  							
 							  ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
-										     ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
+										       ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
 <img width="2048" height="136" alt="tumblr_71b5a934354da7dbc2a7bfc746b9867e_44d65803_2048" src="https://github.com/user-attachments/assets/e493c4a1-7d5b-4641-93a0-1a556a5e44de" />
 
