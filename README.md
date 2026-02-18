@@ -23,7 +23,7 @@
 
 		  𓏲୨    We block freely so if you act weird unprovoked or somehow make us uncomfortable you're hidden sorry ּ   ໑  ׅ   ⋆ 
  							
-							     ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
+							       ◞  𝜗  𝚌 + 𝚑 𝚘𝚙𝚎𝚗, mostly seen at TWST, CRK & Hoyo spots ˳     𓏲  ˑ 
 								 
 										          ෆ・︶⊹︶︶・┈⠀ᕱ ᕱ⠀┈・︶︶⊹︶・ෆ
 
