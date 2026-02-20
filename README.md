@@ -41,7 +41,7 @@
 
 						      (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚/Saph, (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso, (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, 
 
-								       (KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚    ⋆
+							   (KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (GI) 𝙇𝙤𝙝𝙚𝙣/Levon, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚  ⋆
 
 <img width="2048" height="136" alt="tumblr_bc796f41f3a8dcb9874b728242b82722_c7340d50_2048" src="https://github.com/user-attachments/assets/4f7f49c3-99f2-4958-93c3-cdc77460a210" />
 
