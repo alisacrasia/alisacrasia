@@ -31,17 +31,15 @@
 
 
 
-											 	      ⋆ ᥫ᭡ ˚  ࿔ 𝚖𝚘𝚜𝚝 𝚘𝚏 𝚘𝚞𝚛 𝚙𝚘𝚗𝚒𝚎𝚜: 
+											 	     ⋆ ᥫ᭡ ˚  ࿔ 𝚘𝚞𝚛 𝚙𝚛𝚘𝚞𝚍𝚎𝚜𝚝 𝚙𝚘𝚗𝚒𝚎𝚜: 
 
-							      (BSD) 𝙍𝙖𝙣𝙥𝙤 𝙀𝙙𝙤𝙜𝙖𝙬𝙖/Skyler, (MHA) Cowboy 𝘿𝙖𝙗𝙞, (GI) 𝙎𝙘𝙖𝙧𝙖𝙢𝙤𝙪𝙘𝙝𝙚/Kuni, 
+							      (BSD) 𝙍𝙖𝙣𝙥𝙤 𝙀𝙙𝙤𝙜𝙖𝙬𝙖/Skyler, (GI) 𝙎𝙘𝙖𝙧𝙖𝙢𝙤𝙪𝙘𝙝𝙚/Kuni, (GI) 𝙆𝙞𝙣𝙞𝙘𝙝/Kylo, 
 
-							(HSR) 𝘿𝙖𝙣𝙛𝙚𝙣𝙜/Fēi Shì, (GI) 𝙆𝙞𝙣𝙞𝙘𝙝/Kylo, (TWST) 𝙇𝙚𝙤𝙣𝙖, (DS) 𝙂𝙞𝙮𝙪𝙪, (TWST) 𝙈𝙖𝙡𝙡𝙚𝙪𝙨,
+							(TWST) 𝙇𝙚𝙤𝙣𝙖, (DS) 𝙂𝙞𝙮𝙪𝙪, (TWST) 𝙈𝙖𝙡𝙡𝙚𝙪𝙨, (GI) 𝘼𝙚𝙩𝙝𝙚𝙧/Solar, (TWST) Butler 𝙍𝙞𝙙𝙙𝙡𝙚,
 
-					       (GI) 𝘼𝙚𝙩𝙝𝙚𝙧/Solar, (TWST) Butler 𝙍𝙞𝙙𝙙𝙡𝙚, (TWST) 𝙍𝙤𝙡𝙡𝙤 (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞, (MHA) 𝙆𝙖𝙩𝙨𝙪𝙠𝙞, 
+					       (TWST) 𝙍𝙤𝙡𝙡𝙤, (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞, (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚/Saph, (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso,
 
-						      (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚/Saph, (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso, (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, 
-
-							   (KJN8) 𝙎𝙤𝙨𝙝𝙞𝙧𝙤, (GI) 𝙇𝙤𝙝𝙚𝙣/Levon, (HSR) 𝙎𝙩𝙚𝙡𝙡𝙚/Stellar, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie 𝜚 ˚  ⋆
+						            (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, (GI) 𝙇𝙤𝙝𝙚𝙣/Levon, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie  𝜚 ˚  ⋆
 
 <img width="2048" height="136" alt="tumblr_bc796f41f3a8dcb9874b728242b82722_c7340d50_2048" src="https://github.com/user-attachments/assets/4f7f49c3-99f2-4958-93c3-cdc77460a210" />
 
