@@ -37,9 +37,9 @@
 
 						  (TWST) 𝙇𝙚𝙤𝙣𝙖, (DS) 𝙂𝙞𝙮𝙪𝙪, (TWST) 𝙈𝙖𝙡𝙡𝙚𝙪𝙨, (GI) 𝘼𝙚𝙩𝙝𝙚𝙧/Solar (2), (TWST) Butler 𝙍𝙞𝙙𝙙𝙡𝙚,
 
-				  (TWST) 𝙍𝙤𝙡𝙡𝙤 (2), (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞, (PPT) 𝙎𝙪𝙣𝙣𝙞, (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚 (2), (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso,
+				   (TWST) 𝙍𝙤𝙡𝙡𝙤 (2), (PPT) 𝙎𝙪𝙣𝙣𝙞, (SOTE) 𝙈𝙞𝙠𝙖𝙚𝙡𝙖, (CRK) 𝘽𝙡𝙖𝙘𝙠 𝙎𝙖𝙥𝙥𝙝𝙞𝙧𝙚 (2), (CRK) 𝙎𝙝𝙖𝙙𝙤𝙬 𝙈𝙞𝙡𝙠/Calypso,
 
-						    (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, (SOTE) 𝙈𝙞𝙠𝙖𝙚𝙡𝙖, (GI) 𝙇𝙤𝙝𝙚𝙣/Levon, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie  𝜚 ˚  ⋆
+				         (ZZZ) 𝙃𝙪𝙜𝙤 𝙑𝙡𝙖𝙙/Vesper, (TWST) 𝘼𝙡𝙞 𝙈𝙤𝙪𝙨𝙞 (2), (GI) 𝙇𝙤𝙝𝙚𝙣/Levon, (ALNST) 𝙇𝙪𝙠𝙖/Sunnie  𝜚 ˚  ⋆
 
 <img width="2048" height="136" alt="tumblr_bc796f41f3a8dcb9874b728242b82722_c7340d50_2048" src="https://github.com/user-attachments/assets/4f7f49c3-99f2-4958-93c3-cdc77460a210" />
 
