@@ -1,6 +1,6 @@
 							        ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆𝒔!   𓏵𓏵  ㅤ
  
-          ໒   ָ֢ "i'd crawl over the bones of every version of myself to find you in every universe," ⟢
+            ໒   ָ֢ "i'd crawl over the bones of every version of myself to find you in every universe," ⟢
 		                                  
 							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: σɳℓเɳε  ｡   ໒   𝗦𝗸𝘆  + 𝒽𝑒/𝒽𝑒𝓇 ͜     ꒱ྀ 
 
