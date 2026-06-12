@@ -13,4 +13,4 @@
 
 														︶ ‿̩͙𝄞　"i can't sleep 'cause thoughts devour,"  ་།  　་༘࿐
 																		
-													           ꒷	゛  thought of you consume!"   𓏲ּ𝄢　₊   
+													           ꒷	゛  thoughts of you consume!"   𓏲ּ𝄢　₊   
