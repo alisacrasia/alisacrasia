@@ -14,5 +14,3 @@
 														︶ ‿̩͙𝄞　"i can't sleep 'cause thoughts devour,"  ་།  　་༘࿐
 																		
 													           ꒷	゛  thought of you consume!"   𓏲ּ𝄢　₊   
-
-<img width="1679" height="134" alt="image" src="https://github.com/user-attachments/assets/f7f0e351-fe1d-407e-8afc-0dfe87a3eb22" />
