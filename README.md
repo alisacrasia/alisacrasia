@@ -1,15 +1,18 @@
 							       ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
-            ໒   ָ֢ "i'd crawl over the bones of every version of myself to find @Lunar in every universe," ⟢
+            ໒   ָ֢ "i'd crawl over the bones of every other loss of mine to find him in every universe," ⟢
 		                                  
 							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: σɳℓเɳε  ｡   ໒   𝗦𝗸𝘆  + 𝒽𝑒/𝒽𝑒𝓇 ͜     ꒱ྀ 
 
-![tumblr_b80287e9c569acc64d10ad925216f047_101b79ef_2048](https://github.com/user-attachments/assets/e112d03f-afbc-43ec-a6b7-73628f7da3e7)
+<img width="1680" height="226" alt="image" src="https://github.com/user-attachments/assets/c724e39f-b883-4be1-bc7b-4c76eb59616d" />
 
 
 
-														︶ ‿̩͙𝄞　"you got me feelin' hella good  ་།  　་༘࿐
+<img width="1854" height="619" alt="image" src="https://github.com/user-attachments/assets/64ce5997-98a6-4c98-a7da-f0b1907c798d" />
+
+
+														︶ ‿̩͙𝄞　"i can't sleep 'cause thoughts devour,"  ་།  　་༘࿐
 																		
-													 ꒷	゛  so let's just keep on dancing!"   𓏲ּ𝄢　₊   
+													           ꒷	゛  thought of you consume!"   𓏲ּ𝄢　₊   
 
-<img width="2048" height="136" alt="tumblr_c9647e3e01911e17a088af400131c7ff_df977737_2048" src="https://github.com/user-attachments/assets/530563eb-39d2-438d-b3d2-e1127b49bb4b" />
+<img width="1679" height="134" alt="image" src="https://github.com/user-attachments/assets/f7f0e351-fe1d-407e-8afc-0dfe87a3eb22" />
