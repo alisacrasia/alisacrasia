@@ -1,6 +1,6 @@
 							       ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
-            ໒   ָ֢ "i'd crawl over the bones of every other loss of mine to find him in every universe," ⟢
+          ໒   ָ֢ "i'd crawl over the bones of every other loss of mine just to find him in every universe," ⟢
 		                                  
 							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: σɳℓเɳε  ｡   ໒   𝗦𝗸𝘆  + 𝒽𝑒/𝒽𝑒𝓇 ͜     ꒱ྀ 
 
