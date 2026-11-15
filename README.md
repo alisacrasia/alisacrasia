@@ -11,7 +11,6 @@
 
 
 <img width="2048" height="691" alt="image" src="https://github.com/user-attachments/assets/aa52ef83-3b51-4b92-abd5-daffe8ac97a3" />
-<img width="1812" height="168" alt="image" src="https://github.com/user-attachments/assets/a5953d62-3ff4-49cc-a68b-af58dab6ced3" />
 
 <img width="2048" height="123" alt="tumblr_e05379895d7621f800c09d9d1a06676c_cd5e63cf_2048" src="https://github.com/user-attachments/assets/99e14ce7-008f-4df6-bb1d-e088b7cad9ed" />
 
