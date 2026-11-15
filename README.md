@@ -1,4 +1,4 @@
-								   
+				   
 								   ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
           ໒   ָ֢ "what a privilege to find someone who, at this point in life, gives you firs times again." ⟢
@@ -16,7 +16,7 @@
 
 
 
-												    ︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/23721b19-b75d-43d0-b933-41ff59733da2" />	︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
 																		
 											  ꒷ 	゛ 𝖺𝗇𝖽 testify——you know you live to break me!"   𓏲ּ𝄢　₊   
 
