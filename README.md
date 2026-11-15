@@ -21,5 +21,3 @@
 																		
 													        ꒷ 	゛ 𝖺𝗇𝖽 𝗆𝖺𝗋𝖼𝗁𝖾𝖽 𝗍𝗁𝗋𝗈𝗎𝗀𝗁 𝗍𝖾𝖺𝗋𝗌 𝖺𝗇𝖽 𝖻𝗅𝗈𝗈𝖽!"   𓏲ּ𝄢　₊   
 
-<img width="862" height="168" alt="image" src="https://github.com/user-attachments/assets/b87c7d2d-b11a-42f4-9b81-6b6dc4c8778f" />
-
