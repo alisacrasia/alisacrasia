@@ -1,9 +1,9 @@
 				   
-								   ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
+								   ╭    ︵  ' m᥆rᥱ іᥒ𝖿᥆ ᥆ᥒ 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
           ໒   ָ֢ "what a privilege to find someone who, at this point in life, gives you firs times again." ⟢
 		                                  
-							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: σɳℓเɳε  ｡   ໒   𝗦𝗸𝘆  + 𝓈𝒽𝑒/𝒾𝓃𝒻𝑒𝒸𝓉𝑒𝑒 ͜     ꒱ྀ 
+							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: o̶n̶l̶i̶n̶e̶  ｡   ໒   𝗦𝗸𝘆  + 𝓈𝒽𝑒/i͜͡nfectee ͜     ꒱ྀ 
 
 <img width="1812" height="168" alt="image" src="https://github.com/user-attachments/assets/3b600a57-916e-4b0e-80a4-bd5e03395533" />
 
