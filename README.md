@@ -8,7 +8,7 @@
 
 
 
-<img width="1854" height="619" alt="image" src="https://github.com/user-attachments/assets/64ce5997-98a6-4c98-a7da-f0b1907c798d" />
+[<img width="1854" height="619" alt="image" src="https://github.com/user-attachments/assets/64ce5997-98a6-4c98-a7da-f0b1907c798d" />](https://media.discordapp.net/attachments/1100371030104612864/1571414455479308408/F1439745-E413-43E7-8E6D-A476FF8D5761.jpg?ex=6afaa541&is=6af953c1&hm=8568c196fa969fabfe377ea91365fc919e15c0bf2dc79f4590a127dfdd93b0b7&format=webp&width=2048&height=691)
 
 
 														︶ ‿̩͙𝄞　"𝗐𝗂𝗍𝗁 𝖾𝗏𝖾𝗋𝗒 𝗐𝗈𝗎𝗇𝖽 𝗁𝖾 𝗐𝗈𝗋𝖾, 𝗁𝖾 𝗋𝖺𝗂𝗌𝖾𝖽 𝗁𝗂𝗌 𝗌𝗐𝗈𝗋𝖽  ་།  　་༘࿐
