@@ -16,7 +16,7 @@
 
 
 
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/23721b19-b75d-43d0-b933-41ff59733da2" />	︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
+													︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
 																		
 											  ꒷ 	゛ 𝖺𝗇𝖽 testify——you know you live to break me!"   𓏲ּ𝄢　₊   
 
