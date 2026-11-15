@@ -16,7 +16,7 @@
 
 
 
-														︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
+														 ︶ ‿̩͙𝄞　"you poor sweet innocent thing, dry your eyes  ་།  　་༘࿐
 																		
-													        ꒷ 	゛ 𝖺𝗇𝖽 testify, you know you live to break me!"   𓏲ּ𝄢　₊   
+											  ꒷ 	゛ 𝖺𝗇𝖽 testify, you know you live to break me!"   𓏲ּ𝄢　₊   
 
