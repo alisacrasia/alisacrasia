@@ -1,4 +1,5 @@
-   <img width="862" height="168" alt="image" src="https://github.com/user-attachments/assets/b87c7d2d-b11a-42f4-9b81-6b6dc4c8778f" />
+<img width="580" height="30" alt="image" src="https://github.com/user-attachments/assets/b3581b0c-2149-4952-b87d-01209bbf720b" />
+
 								   
 								   ╭    ︵  ' 𝗆𝗈𝗋𝖾 𝗂𝗇𝖿𝗈 𝗈𝗇 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
