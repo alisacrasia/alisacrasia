@@ -1,7 +1,7 @@
 				   
 								   ╭    ︵  ' m᥆rᥱ іᥒ𝖿᥆ ᥆ᥒ 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆(𝒔)!    𓏵𓏵  ㅤ
  
-          ໒   ָ֢ "what a privilege to find someone who, at this point in life, gives you first times again." ⟢
+          ໒   ָ֢ "what a privilege to find people who, at this point in life, gives you first times again." ⟢
 		                                  
 							    ಣ  ˚   𝗌͟𝗍͟𝖺͟𝗍͟𝗎͟𝗌͟: o̶n̶l̶i̶n̶e̶  ｡   ໒   𝗦𝗸𝘆  + 𝓈𝒽𝑒/i͜͡nfectee ͜     ꒱ྀ 
 
